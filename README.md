@@ -1,5 +1,5 @@
 ## Hi, i`m rntech 👋
-a normal kid who does all sorts of crap
+a typical kid who does all sorts of crap
 
 my [tiktok](https://www.tiktok.com/@rnt3ch?_t=ZP-8ycbxH6CZA7&_r=1)
 
